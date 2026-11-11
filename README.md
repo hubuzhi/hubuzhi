@@ -32,4 +32,4 @@
 
 ## 联系方式
 
-邮箱：242681609@qq.com
+邮箱：242681609@qq.com　|　hubuzhi1103@gmail.com
